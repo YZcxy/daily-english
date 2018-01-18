@@ -24,7 +24,7 @@
 - 15 January  
   点餐简单用语，可省略bottle,cup等量词
   
-  Example:  
+  Example:  
   Two waters and no ice, please!  
   Tree orange juices, with ice, please!  
   
