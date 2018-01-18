@@ -29,8 +29,8 @@
   Tree orange juices, with ice, please!  
   
 - 14 January  
-  晚安的表达  
-  
+  晚安的表达
+  
   Example:  
   Night~ Night, dear.  
   Sweet dreams.  
