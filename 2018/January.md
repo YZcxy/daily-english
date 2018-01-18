@@ -1,11 +1,11 @@
-- 18 January  
+- 17 January  
   Give me a second  
   马上就好
   
   Example:    
   Just give me a second to put my coat on.
 
-- 17 January      
+- 16 January      
   Send / Give  
   非当面送用send,当面送用give
   
@@ -13,7 +13,7 @@
   I sent her flowers for her birthday.  
   I gave her flowers.
   
-- 16 January  
+- 15 January  
   看医生常用语
   
   Example:  
@@ -21,14 +21,14 @@
   I have a fever and my head hurts. And also have a sore throat.  
   I've been sick for 3 days.  
   
-- 15 January  
+- 14 January  
   点餐简单用语，可省略bottle,cup等量词
   
   Example:  
   Two waters and no ice, please!  
   Tree orange juices, with ice, please!  
   
-- 14 January  
+- 13 January  
   晚安的表达
   
   Example:  
@@ -36,18 +36,14 @@
   Sweet dreams.  
   Sleep tight, my darling.  
   
-- 13 January  
+- 12 January  
   体检: checkup not body check  
+  拼车: carpool not share a car
   
   Example:  
   It's important to have reguler checkups.  
-  
-- 12 January  
-  拼车: carpool not share a car  
-  
-  Example:  
   You should be more careful when you carpool through the internet.
-  
+
 - 11 January    
   Yes, you are! Yes, you did.    
   用于接别人的话  
