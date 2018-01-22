@@ -1,6 +1,38 @@
+- 21 January  
+  Date: 表示约会  
+  一般指恋爱关系已经确认  
+  
+  Example:  
+  To date someone.  
+  Date night.  
+  I'm go on a date with someone.
+  
+- 20 January    
+  如何接别人的话  
+  
+  Example:  
+  I've got your back.  
+  I know how you feel.  
+  You're so caring. It's touching.
+  
+- 19 January  
+  表达需要再说一遍
+  
+  Example:  
+  Sorry, I missed that. Could you say it again?    
+  Sorry, I couldn't hear you. Could you say that one more time please?  
+  
+- 18 January    
+  leftover: adj，剩下的，剩余的     
+  leftover man/woman: 剩男/女    
+  
+  Example:    
+  We used up the leftover turkey.    
+  We have plenty of leftover pizza if you'd like some.    
+  
 - 17 January  
   Give me a second  
-  马上就好
+  马上就好
   
   Example:    
   Just give me a second to put my coat on.
