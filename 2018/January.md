@@ -1,3 +1,87 @@
+- 31 January  
+  Until: 直到...  
+  By: ...之前  
+  
+  Example:  
+  I worked until 7pm.  
+  I will finish my project by February.
+
+- 30 January  
+  cook: 一般用于用火加热  
+  broken: 一般用于机器坏了，物品破裂   
+  
+  Example:  
+  Who cooked this salad. (false) / who made this salad. (true)  
+  Your coat is broken. (false) / Your coat is torn. (true)
+
+- 29 January  
+  My hands are full  
+  形容有很多事要做，应接不暇  
+  
+  Example:  
+  I have 4 cases to follow this week. My hands are full.
+
+- 28 January   
+  I'm tied up  
+  形容被拴住了，走不开
+  
+  Example:  
+  I have to look after my 2-year-old son everyday. I'm tied up.
+
+- 27 January  
+  取钱: withdrew  
+  存钱: deposit
+  
+  Example:  
+  They withdrew 100 dollars from a bank account.  
+  The money is deposited in my account every month.
+  
+- 26 January  
+  Have words: 争论，吵架   
+  
+  Example:   
+  Mom and dad had words last night.   
+  
+  A word: 悄悄话，商谈   
+  
+  Example:   
+  Can I have a word with you?  
+
+- 25 January  
+  土豪: Fat cat.
+  
+  Example:  
+  I'm not fat cat. I can't even pay my bills.  
+  He has everything he needs, He's a real fat cat.
+
+- 24 January  
+  I'm in the middle of something.  
+  形容自己正忙于做某事   
+  
+  Example:   
+  Sorry, I'm in the middle of something, I can't join your party tonight.  
+  
+  I'm overloaded!  
+  形容自己已经筋疲力尽   
+  
+  Example:   
+  I've been working for 20 hours, I'm overloaded.  
+
+- 23 January   
+  涂口红: Apply lipstick.    
+  擦面霜: Apply cream.   
+  
+  Example:   
+  Apply the moisturize twice a day. once in the morning and the other in the evening.  
+
+- 22 January  
+  怎么回答 "how are you"  
+  
+  Example:  
+  Alright/Doing right.  
+  Can't complain.
+  Just surviving.
+
 - 21 January  
   Date: 表示约会  
   一般指恋爱关系已经确认  
