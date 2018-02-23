@@ -1,3 +1,21 @@
+- 22 February  
+  白酒: Chinese spirits! 或者 Liquor and Spirits  
+  
+  Example:  
+  因为度数高的蒸馏酒都可以叫做: Spirits。  
+  
+- 21 February  
+  初恋: puppy love 不是 first love  
+  
+  Example:  
+  It's just puppy love, you will grow out of it!
+  
+- 20 February  
+  暗恋: have a crush on sb  
+  
+  Example:  
+  Back in high school, I had a crush on you.
+
 - 5 February  
   I need it yesterday: 立即马上就要，不是昨天要  
   
